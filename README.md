@@ -1,2 +1,2 @@
-# Work
-Work🖋
+# Study
+Study🖋
